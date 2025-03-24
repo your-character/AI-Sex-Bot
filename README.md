@@ -51,7 +51,7 @@ The AI Girlfriend Sex Bot is designed for more intimate connections. Whether you
 
 Sign up now to connect with your virtual companion. Whether you're seeking adult fun or meaningful interactions, the AI Sex Bot is ready to deliver a conversation like no other.
 
-<a href="https://golove.ai/ai-sex-bot">Get started with AI Sex Bot Now!!</a>
+<a href="https://golove.ai/?ref=gh-golove-ai">Get started with AI Sex Bot Now!</a>
 
 <h2>FAQ (Frequently Asked Questions):</h2>
 
